@@ -53,7 +53,8 @@ The "Enhancing Retail Engagement Through Generative AI-Powered Personalization" 
 - Craft Precise Messaging Aligning with Customer Preferences
 
 ## Result
-![image](https://github.com/sanketdisale871/RetailConnect/assets/109368165/1e10ec6f-56fc-4846-a863-bd75fcc82e76)
+![WhatsApp Image 2023-12-09 at 9 48 23 PM](https://github.com/sanketdisale871/RetailConnect/assets/109368165/0484212a-6866-43b7-a13a-d6991f4970a2)
+
 
 
 
